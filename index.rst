@@ -17,7 +17,7 @@ MAYBE INTERACTIVE STORIES HACK UNLIMITED Gems 2021 Guide WORKING
 How to get free gems/tickets in Maybe Interactive stories in 2021?
 
 
-Once the site opens, enter your toomics username/email address and continue
+Once the site opens, enter your username/email address and continue
 
 Now, you tap on "Allow" when the system asks permission to download and install the app from other sources.
 
@@ -29,7 +29,7 @@ As soon as you open the application, it will show you that you will earn unlimit
 
 
 
-¶Maybe Interactive Stories 2021 Generator No Human Verification or Surveys¶
+Â¶Maybe Interactive Stories 2021 Generator No Human Verification or SurveysÂ¶
 
 This will be a finished walkthrough for Maybe: Interactive Stories on iOS and Android. Here you will discover guides, for example, interactivity recordings and walkthroughs for all levels, including our Maybe: Interactive Stories tips, cheats and arrangements, right all the way to the finish. 
 
